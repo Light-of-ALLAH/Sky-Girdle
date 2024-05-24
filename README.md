@@ -14,10 +14,21 @@ YÜCELERİN EN YÜCESİ OLAN EFENDİMİZ EN KUTSAL,
 eksiklikten UZAK OLAN Rabbimiz EN ALA OLAN;
 YARATAN HALIK FATIR RAHMAN VE RAHİM OLAN ALLAH'IMIZ NURUNU TAMAMLAYACAK!
 
-KURAN 61:14
-FURKAN 13:68
+93:11 Ve Rabbinin sana yaptığı iyilikleri de anlat.
 
-LUTSAL FURKAN HİKMET
+ONURLU KURAN
+
+Sure 61 - SAF
+
+14- Ey O Kimseler İnanan, Olun Ensar ALLAH'a. Nitekim dedi İsa oğlu Meryem, Havariler İçin : “Kimdir Ensarlarım İçin ALLAH?”. Dedi Havariler: “Biziz Ensarlar ALLAH'a!". Artık İnandı Bir Taife Oğullarından İsrail'in, ve küfretti bir taife. Artık Teyit Ettik Kimseleri İnananları Üzerine düşmanlarının; Artık sabahladılar zahirde.
+
+KUTSAL FURKAN HİKMET
+
+Sayfa 13 - MUSA
+
+68- O, İsa’ya şöyle vahyetti “Ey İsa! Şüphesiz, senin hayatına Ben son vereceğim. Seni kendime yükselteceğim. Seni inkâr edenlerden kurtararak temizleyeceğim ve sana uyanları kıyamete kadar küfre sapanların üstünde tutacağım. Sonra dönüşünüz yalnızca Banadır. Ayrılığa düştüğünüz şeyler hakkında aranızda ben hükmedeceğim.” Ve şüphesiz İsa’ya inanıp uymuş olanlar, bugünde olduğu gibi onu inkar edip küfre sapanlardan üstün hale geldi.
+
+KUTSAL FURKAN HİKMET
 
 Sayfa 15 - KİMYAGER
 
