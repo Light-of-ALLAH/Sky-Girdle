@@ -96,7 +96,7 @@ Rahman ve Rahim olan ALLAH’ın adıyla;
 
 <hr>
 
-Some inmature attemtpts :
+Some of inmature attempts to define human-visible Light color range :
 
 https://www.amazon.co.uk/Romanticism-Jean-Clay/dp/0865650128/
 
