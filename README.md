@@ -4,6 +4,8 @@ Rahman ve Rahim olan ALLAH’ın adıyla;
 
 61:8 İstiyorlar ! onlar için söndürmeyi onu nur ALLAH ile pro nüanslar (ayrımlar : color gamut profilleriyle - üzülüyorlar renkten gamlanıyorlar) ve ALLAH tümleyen nurunu velev bulsa zor iğrense küfredenler! 
 
+![Light of ALLAH](../ALLAH%20tümleyecek%20nurunu!.webp)
+
 <hr>
 
 Some inmature attemtpts :
