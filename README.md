@@ -6,6 +6,16 @@ Rahman ve Rahim olan ALLAH’ın adıyla;
 
 ![Light of ALLAH](Subhan-Rabbimiz-Rahman-ve-Rahim-Yaratıcımız-ALLAH-tümleyecek-nurunu!.png)
 
+Some of inmature attempts to define human-visible Light color range :
+
+https://www.amazon.co.uk/Romanticism-Jean-Clay/dp/0865650128/
+
+https://en.wikipedia.org/wiki/Philipp_Otto_Runge#cite_note-Clay_(1981)-8
+
+https://en.wikipedia.org/wiki/Munsell_color_system
+
+<hr>
+
 SUBHAN OLAN RABBİMİZ EN AZİM,
 eksiklikten UZAK OLAN SAHİBİMİZ EN BÜYÜK,
 YÜCELERİN EN YÜCESİ OLAN EFENDİMİZ EN AZİM BAĞIŞ SAHİBİ,
@@ -93,13 +103,3 @@ Rahman ve Rahim olan ALLAH’ın adıyla;
 29- İnsan’a bilmediklerini öğreten ALLAH’ın şanı ne yücedir. O, ne güzel Öğretmen’dir.
 
 30- Hamd, güneşi doğudan getirip batıdan da batıran, geceyi gündüze ve gündüzü de geceye çeviren ALLAH’a dır.
-
-<hr>
-
-Some of inmature attempts to define human-visible Light color range :
-
-https://www.amazon.co.uk/Romanticism-Jean-Clay/dp/0865650128/
-
-https://en.wikipedia.org/wiki/Philipp_Otto_Runge#cite_note-Clay_(1981)-8
-
-https://en.wikipedia.org/wiki/Munsell_color_system
