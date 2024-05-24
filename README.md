@@ -6,6 +6,17 @@ Rahman ve Rahim olan ALLAH’ın adıyla;
 
 ![Light of ALLAH](Subhan-Rabbimiz-Rahman-ve-Rahim-Yaratıcımız-ALLAH-tümleyecek-nurunu!.png)
 
+SUBHAN OLAN RABBİMİZ EN AZİM,
+eksiklikten UZAK OLAN SAHİBİMİZ EN BÜYÜK,
+YÜCELERİN EN YÜCESİ OLAN EFENDİMİZ EN AZİM BAĞIŞ SAHİBİ,
+SUBHAN OLAN RABBİMİZ EN KARARLI,
+YÜCELERİN EN YÜCESİ OLAN EFENDİMİZ EN KUTSAL,
+eksiklikten UZAK OLAN Rabbimiz EN ALA OLAN;
+YARATAN HALIK FATIR RAHMAN VE RAHİM OLAN ALLAH'IMIZ NURUNU TAMAMLAYACAK!
+
+KURAN 61:14
+FURKAN 13:68
+
 <hr>
 
 Some inmature attemtpts :
